@@ -1,3 +1,4 @@
 # TNJ-Yafi
 
-[Click here to know more about me](https://open.spotify.com/playlist/1SvSXMty9n6P1DjZHHTpdr?si=558651a1ede54d6f)
+[Click here to know more about me](https://www.instagram.com/madelyaf/)
+![https://docs.github.com/assets/cb-39744/mw-1440/images/help/writing/image-rendered.webp]
